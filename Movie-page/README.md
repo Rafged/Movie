@@ -1,1 +1,1 @@
-<img width="1198" height="421" alt="화면 캡처 2025-08-27 135918" src="https://github.com/user-attachments/assets/18af3f82-0b64-4881-a8c4-b18a33c7de89" />
+<img width="1333" height="746" alt="화면 캡처 2025-09-03 094814" src="https://github.com/user-attachments/assets/8b2bcabf-54e7-42d8-93a4-b9cca397129a" />
